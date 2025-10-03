@@ -1,0 +1,1 @@
+# trykon1.github.io
